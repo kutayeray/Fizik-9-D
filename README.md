@@ -1,12 +1,20 @@
-# Pavlova Tarifi
-<h2>~Gerekli Malzemeler~</h2>
+# Limonlu Kek Tarifi
+<h2>~Malzemeler~</h2>
 
-- 5 adet yumurta akı
+- 4 adet yumurta
 
 - 1 su bardağı toz şeker
 
-- 1 çay kaşığı vanilya özütü
+- 1 adet rendelenmiş limon kabuğu
 
-- 1 çay kaşığı elma sirkesi
+- 2 yemek kaşığı limon suyu
 
-- 1 tatlı kaşığı mısır nişastası
+- ½ su bardağı ayçiçek yağı
+
+- 1 su bardağı süt
+
+- 3 su bardağı un
+
+- 1 paket vanilya
+
+- 1 paket kabartma tozu
