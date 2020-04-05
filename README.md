@@ -21,15 +21,15 @@
 
 - **1 yemek kaşığı** tereyağı(veya margarin)
 <h2>~Tarifi~</h2>
-- 1. Yumurta ve toz şekeri, bir çırpıcı yardımıyla krema halini alana kadar çırpın.
+1. Yumurta ve toz şekeri, bir çırpıcı yardımıyla krema halini alana kadar çırpın.
 
-- 2. Sırasıyla; süt, ayçiçek yağı ve limon suyunu ilave edip, 2 dakika daha çırpın.
+2. Sırasıyla; süt, ayçiçek yağı ve limon suyunu ilave edip, 2 dakika daha çırpın.
 
-- 3. Elenmiş un, kabartma tozu, vanilya ve rendelenmiş limon kabuğunu ekledikten sonra karıştırın.
+3. Elenmiş un, kabartma tozu, vanilya ve rendelenmiş limon kabuğunu ekledikten sonra karıştırın.
 
-- 4. Yağladığınız kek kalıbına harcı boşaltın ve eşit oranda kabarması için üzerini bir spatula yardımıyla düzeltin.Hazırladığınız limonlu keki, önceden ısıtılmış 170 derece fırında 40 dakika pişirin.
+4. Yağladığınız kek kalıbına harcı boşaltın ve eşit oranda kabarması için üzerini bir spatula yardımıyla düzeltin.Hazırladığınız limonlu keki, önceden ısıtılmış 170 derece fırında 40 dakika pişirin.
 
-- 5.İçini çekmesi için keki dinlendirdikten sonra kalıbından çıkartın ve dilimleyerek servis edin.
+5. İçini çekmesi için keki dinlendirdikten sonra kalıbından çıkartın ve dilimleyerek servis edin.
 
 
 
