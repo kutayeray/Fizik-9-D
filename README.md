@@ -62,4 +62,16 @@
 5. After resting the cake for cooldown,take it out of the mold and serve it.
 ![image](https://cdn.yemek.com/mncrop/940/625/uploads/2014/06/limonlu-kek-yeni.jpg)
 
+Size |  Calori
+--- | ---
+1 Slice Cake (55 gram) | 150 kcal
+100 gram | 273 kcal
 
+
+# Vücut Kitle İndeksi
+
+Kişi | Beden Kitle İndeksi(kg/m²)
+Annem | 28.34
+Babam | 24.02
+Ağabeyim | 22.15
+Ben | 19.59
