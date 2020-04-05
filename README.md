@@ -71,6 +71,7 @@ Size |  Calori
 # Vücut Kitle İndeksi
 
 Kişi | Beden Kitle İndeksi(kg/m²)
+--- | ---
 Annem | 28.34
 Babam | 24.02
 Ağabeyim | 22.15
